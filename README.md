@@ -1,2 +1,3 @@
-# SISFOKOL-v7
-SISFOKOL v7, rilis target : Pebruari 2025.
+# SISFOKOL-v7.00 (code:SmartOffice
+
+Rilis target : Akhir Pebruari 2025.
