@@ -13,6 +13,12 @@ Silahkan unduh di :
 
 https://gitlab.com/hajirodeon/sisfokol-v7.00-code-smartoffice
 
+---
+
+https://sociabuzz.com/hajirodeon
+
+Teknik khusus nih, bagi kamu2 yg mau support karya2 dan produk2 ku ya 😊😁
+
 
 
 
